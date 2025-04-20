@@ -1,6 +1,7 @@
 ## Hi there 👋
 
-![image](https://github.com/user-attachments/assets/2d09dc59-5daa-4b78-89dc-5b7fe08e249c)
+![ozon671games-ozon](https://github.com/user-attachments/assets/b6e4bc61-a42b-43e4-9a89-2ee4de8f54e5)
+
 
 
 <!--
