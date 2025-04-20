@@ -1,5 +1,8 @@
 ## Hi there 👋
 
+![image](https://github.com/user-attachments/assets/2d09dc59-5daa-4b78-89dc-5b7fe08e249c)
+
+
 <!--
 **hherpa/hherpa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
